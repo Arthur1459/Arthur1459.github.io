@@ -1,4 +1,5 @@
-#
+# Arthur Oudeyer
+Here is who i am and you can find most of my projects !
 
 # Welcome to my Profile ! 🚀
 
